@@ -1,2 +1,1 @@
 Kenneth Mayo
-Ian Tayag
